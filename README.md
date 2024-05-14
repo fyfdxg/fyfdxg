@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @fyfdxg
+- 👀 I’m interested in Hypixel/Fakepixel Skyblock Minecraft
+- 🌱 I’m currently learning HTML and CSS
+- 💞️ I’m not looking for anyone
+- 😄 Pronouns: Ryan Gosling (he/him)
+- ⚡ Fun fact: Did you know that everybody is little autistic.
